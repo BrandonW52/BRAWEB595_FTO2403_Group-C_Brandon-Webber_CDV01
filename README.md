@@ -76,13 +76,12 @@
 
 2. **Preparation for Long-term Goals**:
     
-    - Describe the preparations or groundwork necessary for your long-term aspirations.
     - Work experience.
     - Networking.
     - Market research.
     - Hard work and dedication.
     
-    - Consider additional skills, experiences, or qualifications needed.
+    **Consider additional skills.**
     - Understanding business.
     - People management.
 
